@@ -1,0 +1,1 @@
+Breack the 2 eggs in a bowl and add pepper,masala and salt and  mix it and put on the pan and add oil and wait for  some time and it is ready to eat.
